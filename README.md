@@ -1,0 +1,2 @@
+# telegramaccount
+Telegram账号在哪里买及使用与验证码说明
